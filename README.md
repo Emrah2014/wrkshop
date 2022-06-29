@@ -3,8 +3,11 @@
 2. Eee neden olmadı
   Acaba oldu mu
 
-<ne olacak acaba>
-<nerde ve ne zaman>
 
-<ne olacak
-nerde ve ne zaman>
+  1. Bence olacak
+
+
+
+   Acaba Ne zaman
+
+                         şimdi mi
